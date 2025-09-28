@@ -368,3 +368,21 @@ Prime Minister Saito’s advisors summed it up bluntly: “Japan has the brains,
 In a high-rise office overlooking Tokyo Bay, Saito stared at the global news feed: drones striking the American West Coast, Chinese forces struggling to control Taiwanese AI, and financial markets reacting in real-time. He sighed. Japan’s strategy wasn’t about bombs or AI—it was about survival, tariffs, and diplomacy.
 
 Still, quietly, Japanese semiconductor labs were running simulations, preparing for the day when they could reenter the game with their own innovations, fully unshackled by economic and cultural constraints. But for now, the world spun madly around Taiwan’s brilliance, the American chaos, and the Chinese frustration—and Japan, ironically, remained busy with the mundane fights nobody outside the islands cared about.
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+## What Is Vietnam Doing During This Time? Sucking Chinese Cock
+
+While Taiwan’s engineers orchestrated AI chaos across the American West Coast, and Japan was tangled in tariffs and missionary pressures, Vietnam quietly pursued a different strategy—one that was as audacious as it was opportunistic.
+
+Hanoi’s government had decided early on: survival first, independence later. And in a world dominated by Chinese military ambitions and global economic chaos, “playing nice” with Beijing was the easiest route to preserve domestic stability. The phrase “sucking Chinese cock,” crude as it was whispered in private corridors, became the blunt shorthand among Western analysts for Vietnam’s deference to its powerful northern neighbor.
+
+Officially, Hanoi championed trade agreements, energy partnerships, and “mutual development programs” with China. Unofficially, it quietly aligned itself with Beijing’s military initiatives in the South China Sea, making token gestures of compliance that drew praise—and strategic leverage—from the Chinese Communist Party.
+
+Vietnamese tech startups, which could have attempted to innovate in semiconductors or AI, found their efforts stifled by regulations designed to favor Chinese investors. Meanwhile, government-backed industries thrived—not because of ingenuity, but because they served as obedient conduits for Chinese capital and influence.
+
+Observers in Washington, Tokyo, and Taipei rolled their eyes. While the world’s eyes were on Taiwan, Vietnamese corporates were effectively subcontracting loyalty to China, ensuring their short-term survival but forfeiting autonomy. The irony was palpable: nations and companies were risking everything on AI, semi-conductors, and global dominance, while Vietnam quietly collected benefits without firing a shot.
+
+Even the Vietnamese populace noticed. Social media murmured about the country’s subservience, but the streets were calm, the factories operational, and the rice markets full. Pragmatism, it seemed, had a more immediate reward than idealistic resistance.
+
+In the end, while the U.S. scrambled, Japan negotiated, and Taiwan unleashed chaos, Vietnam’s strategy remained simple: stay aligned with the dominant power, avoid confrontation, and let others burn themselves out first. It was a gamble of patience, loyalty, and opportunism—and in the twisted calculus of global power, sometimes that was enough.
