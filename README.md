@@ -497,5 +497,6 @@ It was a new kind of war, a slow-motion apocalypse. Battles weren’t fought wit
 
 The Start of the Ending wasn’t marked by a single day of explosions or revolt. It was quiet, insidious, and complete. And as the Robber-Barons tightened their grip, the country understood that their enemies were not invisible strangers—they were the ones who had promised to lead, but only ever led themselves to power.
 
-**below was added by me**
+**below was added by me**   
+
 And it could have just stopped to give room for something else with the Jan-Faggot conspiracy.
