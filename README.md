@@ -331,7 +331,7 @@ Outside the command center, the world continued, unaware that a single strike co
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-**All the Taiwanese Girls Are Better at Math and Making Semi-Conductors Than Americans**
+# All the Taiwanese Girls Are Better at Math and Making Semi-Conductors Than Americans
 
 The Chinese High Command had expected Taiwan to be a minor hurdle—a small island with some strategic chips and a few semiconductor factories. What they didn’t expect was *the people*.
 
