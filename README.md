@@ -499,4 +499,4 @@ The Start of the Ending wasn’t marked by a single day of explosions or revolt.
 
 **below was added by me**   
 
-And it could have just stopped to give room for something else with the Jan-Faggot conspiracy.
+And it could have just stopped to give room for something else after the Jan-Faggot conspiracy.
