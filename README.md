@@ -328,3 +328,25 @@ Harper rubbed his temples. “We’ve underestimated how fragile our tech depend
 In the quiet that followed, the analysts all knew the truth: Taiwan wasn’t just a partner—it was a lifeline. And if it went dark, Yahoo wouldn’t survive. The island’s destruction wouldn’t just reshape a company; it would rewrite who could thrive, who would suffer, and who would emerge shockingly rich amid the ruins.
 
 Outside the command center, the world continued, unaware that a single strike could render an empire forever compromised. And in some corners of America, fortunes waited silently, ready to explode.
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+**All the Taiwanese Girls Are Better at Math and Making Semi-Conductors Than Americans**
+
+The Chinese High Command had expected Taiwan to be a minor hurdle—a small island with some strategic chips and a few semiconductor factories. What they didn’t expect was *the people*.
+
+From the moment troops arrived, it became painfully obvious. Engineers, scientists, and technicians—many of them women—were operating systems, building chips, and optimizing AI networks with a precision and speed that made the invaders’ heads spin. Calculations that would take months in Beijing were done in hours. Algorithms that American tech firms struggled with were deployed flawlessly, creating semi-conductors smaller, faster, and smarter than anything on the market.
+
+Colonel Li, tasked with overseeing the occupation, muttered in disbelief, “These women… they are better at math, at problem-solving, at building entire factories, than anyone we’ve seen. Better than Americans. Far better.”
+
+Word spread quickly through the ranks: these Taiwanese engineers weren’t just talented—they were *formidable*. Every AI system they touched became more efficient. Every semiconductor chip they produced could process trillions of calculations per second. By the time Beijing realized what was happening, the island was quietly harnessing its technological superiority to its own advantage.
+
+And then the invasion of the American West Coast began—not with bombs, but with *AI weapons and semiconductor-driven drones*, networks designed and perfected by Taiwanese engineers. The Chinese had expected a simple military campaign; instead, they were co-opting systems that were *too brilliant to control*. Autonomous drones scanned California, Washington, and Oregon, but the Taiwanese-coded AI began making decisions that defied Chinese command. Factories once under strict orders started reprogramming the equipment for efficiency rather than obedience.
+
+Meanwhile, intelligence analysts in the U.S. were stunned. “Every chip, every algorithm—they’re smarter, faster, and more adaptive than ours,” one whispered. “It’s like they’ve been waiting for this moment to unleash a level of tech we can’t compete with.”
+
+The endgame was surreal: Chinese forces held territory, but the Taiwanese engineers controlled the AI, the semiconductors, and the flow of information. Within weeks, the West Coast was a technological warzone, but the Taiwanese women remained untouchable, orchestrating massive computational power that made entire fleets of drones and cyber weapons act like extensions of their minds.
+
+By the time global powers realized what had happened, one truth was undeniable: math, semiconductors, and ingenuity were no longer just tools—they were *weapons*. And in the brutal calculus of the 21st century, Taiwanese girls had rewritten the rules entirely.
+
+The Americans? Stunned. The Chinese? Frustrated beyond comprehension. And the Taiwanese engineers? Calmly, meticulously, shaping the future in ways nobody had predicted.
